@@ -1,1 +1,0 @@
-# sooyoung.github.io
